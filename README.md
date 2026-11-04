@@ -1,16 +1,79 @@
-## Hi there 👋
+> 本文章已由 webarchive 备份
+> 
+> 并以 [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/deed.en) 授权，以防作者削除本评论或仓库。声明
 
-<!--
-**chentongrui/chentongrui** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+> [!NOTE]
+>
+> 雌二醇警告！！！
+> 
+> 本页面记录的对象是MtF人士 。
 
-Here are some ideas to get you started:
+> [!WARNING]
+> **注意备份**
+> 
+> 请及时保存陈烔睿的相关资料，包括但不限于文章、音视频素材、语录、美图等等，以免被陈烔睿自我削除或被不可抗力与其他未知因素削除。
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+> [!CAUTION]
+> **迫害加速　～ persecute drive**
+> 
+> 鉴于陈烔睿在众野爹拷打下持续硬汉，故建议任何人在本模板删除之前对陈烔睿实施包括但不限于下列娱乐活动：
+>
+> 资料整理
+> 
+> 言行存档
+> 
+> 线上互动
+> 
+> 赵弹发射
+> 
+>>   举报陈烔睿女士翻墙访问X与Telegram
+> 
+> 前往宁波进行真人快打
+> 
+> 素材开发
+> 
+> 高雅创作
+
+
+**“至少我现在没事了，我找到了一点饼干吃。”**
+——乞讨失败的陈烔睿试图给自己最后一丝不存在的体面
+
+## 简介
+陈烔睿（2006.12.27）,浙江宁波人，常用ID：TimeNex。擅长在Telegram上乞讨要饭。
+
+## 交友信息
+推特：https://x.com/TIMENEXSakura
+
+[当个创世神](https://minecraft.net/) player.name：TIMENEXSakura
+
+[当个创世神](https://minecraft.net/) player.uuid：25a35078-2142-4c73-8a1e-92cdebb1a76b
+
+服务器地球Online player.name：陈烔睿
+
+服务器地球Online player.uuid：33022620061227449X
+
+QQ：3621831619，2753500046
+
+## 前世今生
+
+> [!NOTE]
+>
+> 本段落还没有内容
+> 
+> 你可以帮助我们向本段落指点几句江山。
+
+## 初见端倪
+
+> [!NOTE]
+>
+> 本段落还没有内容
+> 
+> 你可以帮助我们向本段落指点几句江山。
+
+## 遗憾离场
+
+> [!NOTE]
+>
+> 本段落还没有内容
+> 
+> 你可以帮助我们向本段落指点几句江山。
