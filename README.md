@@ -19,7 +19,7 @@
 > <table>
 > <tr>
 >   <td>
->     <img width="64" height="64" alt="image" src="https://github.com/user-attachments/assets/0cd5e52d-039c-4566-9f94-0ca804708f54" />
+>     <img width="64" height="64" alt="image" src="https://github.com/user-attachments/assets/60ae4512-30cd-40bf-afc9-2d98f5ad8806" />
 >   </td>
 >   <td>
 >     <strong>当前事件</strong><br>
@@ -54,8 +54,8 @@
 >     言行存档<br>
 >     线上互动<br>
 >     赵弹发射<br>
->       举报陈烔睿女士翻墙访问X与Telegram<br>
->       举报陈烔睿女士涉嫌网络诈骗<br>
+>     | 举报陈烔睿女士翻墙访问X与Telegram<br>
+>     | 举报陈烔睿女士涉嫌网络诈骗<br>
 >     前往宁波进行真人快打<br>
 >     素材开发<br>
 >     高雅创作
