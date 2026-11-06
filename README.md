@@ -139,7 +139,9 @@
 
 <img src="https://github.com/user-attachments/assets/a3268077-9491-4a88-9e32-32dbd5393a64" />
 
-<img src="https://github.com/user-attachments/assets/a70ffa65-e667-40f8-93d7-9dde32321d12" />
+(贪得无厌的陈烔睿多次要饭)
+
+<img src="https://github.com/user-attachments/assets/a8ab400d-3512-47de-988d-a74ff79020e7" />
 
 在这些图片中，笔者注意陈烔睿所使用的微信与支付宝账号都并非其本实名
 
@@ -147,9 +149,29 @@
 
 陈烔睿是一名遵纪守的好公民。(大嘘)
 
+**Akile风波**
+
+2025年12月寒冬，mtf陈烔睿来到了高如云的 [Akile Cloud售后](https://akile.io/) 群要饭
+
+<img alt="image" src="https://github.com/user-attachments/assets/6a9aeac2-f53b-431e-ae88-44683b9a7471" />
+
+<img alt="image" src="https://github.com/user-attachments/assets/ab25db20-a530-4bd7-a1ea-d154ec3861de" />
+
+<img alt="image" src="https://github.com/user-attachments/assets/dfd92870-2d62-4da2-ad08-74ea6108cd12" />
+
+<img src="https://github.com/user-attachments/assets/1f66712f-dcda-481d-9906-3fd300cc1433" />
+
+<img src="https://github.com/user-attachments/assets/3cb27211-b21e-4d49-b223-da926218c37e" />
+
+万幸的是，本群群友轻松识了陈烔睿女士的骗局，没有产生任何财产损失
+
+<img src="https://github.com/user-attachments/assets/905faca2-b321-4936-a030-3359561b0d47" />
+
+眼见诈骗无果，陈烔睿选择了逃逸并删除了所有消息 (尽管被不知名高雅人士保存了)
+
 **转战**
 
-2026年10月，陈烔睿见纸飞机已无人要饭，索性转发X(原推特)
+2026年10月，陈烔睿见纸飞机已无人要饭，于是便踏上了往 X(原推特)要饭 的旅程
 
 <img src="https://github.com/user-attachments/assets/e950fe4a-d704-44e5-a48e-206f5a08cde2" />
 
