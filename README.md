@@ -1,6 +1,6 @@
 > 本文章已由 webarchive 备份
 > 
-> 并以 [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/deed.en) 授权，以防作者削除本评论或仓库。声明
+> 并以 [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/deed.en) 授权，以防陈烔睿削除本评论或仓库。声明
 
 > [!NOTE]
 > <table>
@@ -11,6 +11,19 @@
 >   <td>
 >     <strong>雌二醇警告！！！</strong><br>
 >     本页面记录的对象是MtF人士 。
+>   </td>
+>  </tr>
+> </table>
+
+> [!NOTE]
+> <table>
+> <tr>
+>   <td>
+>     <img width="64" height="64" alt="image" src="https://github.com/user-attachments/assets/0cd5e52d-039c-4566-9f94-0ca804708f54" />
+>   </td>
+>   <td>
+>     <strong>当前事件</strong><br>
+>     截至2026年11月，每天都会成为昨天，记载的内容可能在三分钟内死亡。
 >   </td>
 >  </tr>
 > </table>
